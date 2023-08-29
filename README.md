@@ -1,0 +1,2 @@
+# belajar
+masih pemula
